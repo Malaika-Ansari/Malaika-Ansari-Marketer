@@ -1,2 +1,2 @@
-# Malaika-Ansari-Marketer
-Digital Marketing Strategist | Social Media Marketing Specialist | SEO &amp; Search Engine Optimization | Google Ads &amp; PPC Campaign Management | Strategic Content Marketing | Audience Growth &amp; Engagement | Lead Generation | Brand Positioning | Marketing Analytics | Conversion Optimization | AI-Powered Marketing Solutions.
+ Malaika-Ansari-Marketer
+Founder of Sparkline Marketing | Digital Marketing Strategist | Social Media Marketing Specialist | SEO & Google Ads | PPC Campaign Management | Content Strategy | Lead Generation | Brand Development | Marketing Analytics | AI-Powered Marketing Solutions.
